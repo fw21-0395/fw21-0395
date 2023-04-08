@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **HTML,CSS,JavaScript**
 
-- 📫 How to reach me **neerajxkadian@gmail.com**
+- 📫 How to reach me **neerajkadianx@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1tQgu0lQs2v_NcnvB7pN3njkQz0DM9yZZ/view?usp=sharing](https://drive.google.com/file/d/1tQgu0lQs2v_NcnvB7pN3njkQz0DM9yZZ/view?usp=sharing)
 
